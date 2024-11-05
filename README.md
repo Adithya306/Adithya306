@@ -11,7 +11,7 @@
 
 - ⚡ Fun fact **Food and Music🎵 are the reasons to live.**
 <br>
-
+<p><img align="right" src="https://github.com/Adithya306/animation/blob/main/animation_500_kxa883sd.gif" alt="adithya306" /></p>
 
 
 <h3 align="left">Connect with me:</h3>
